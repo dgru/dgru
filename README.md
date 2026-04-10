@@ -1,2 +1,2 @@
 ### 
-Trauma, EMS, Resuscitation, Acute Care Research
+Trauma, EMS, Resuscitation Research
